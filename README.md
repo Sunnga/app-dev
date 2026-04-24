@@ -3,7 +3,7 @@ My first Repository
 
 ## Currently My Favorite Series
 ### Mob Psycho 100
-<img width="500" height="540" alt="Mob-Psycho-100-Anime-Visual-02" src="https://github.com/user-attachments/assets/8386cc05-58cb-436f-b4e6-78728262f30b" />
+<img width="500" height="640" alt="Mob-Psycho-100-Anime-Visual-02" src="https://github.com/user-attachments/assets/8386cc05-58cb-436f-b4e6-78728262f30b" />
 
 | Syntax | Description |
 | ----------- | ----------- |
