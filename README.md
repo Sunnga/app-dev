@@ -14,6 +14,7 @@ My first Repository
 **Mob Psycho 100** is an anime that was adapted from the manga of the same name, created by *ONE[^1]* and animated by *studio Bones*. Its manga was published in 2012 and concluded in 2017, while its anime began airing its first season in 2016 and finally ended with its third and final season in 2022. 
 [^1]: ONE is a famous Japanese manga-artist whose best known work is One-Punch Man
 
+## Synopsis
 The story follows a student named **Shigeo Kageyama**; an average student with psychic abilities, as he tries to navigate through life, while trying to control his emotions and connect with others in the process. 
 
 ### Characters
@@ -48,7 +49,7 @@ The story follows a student named **Shigeo Kageyama**; an average student with p
 ##### More Information
 > [Mob Psycho 100 Wikipedia](https://mob-psycho-100.fandom.com/wiki/Mob_Psycho_100)
 
-## Personal Opinion
+## Personal Opinion ദ്ദി◝ ⩊ ◜)
 ### Why Do I Like the Series? 
 - [x] Themes are explored in an excited and thought-provoking way. 
 - [x] Characters have proper motivations and growth. 
@@ -83,7 +84,7 @@ All of them. I don’t think I can pick a favorite. However, for the sake of thi
 ⭐⭐⭐⭐⭐/⭐⭐⭐⭐⭐
 
 ---
-In conclusion! if this interest you or if this series genuinely aligns with what you like, please make time to watch Mob Psycho 100. It contradicts the typical "Hero's journey towards to becoming strong" by making the main character struggle with his own emotions, and controlling his powerful abilities. Along the way, you'll meet characters that contributes his journey towards self-discovery! **Mob Psycho 100** is anime that will surely be worth a watch and is always a great reccomendation! Thank you so much for reading<3!
+In conclusion! if this interest you or if this series genuinely aligns with what you like, please make time to watch Mob Psycho 100. It contradicts the typical "Hero's journey towards to becoming strong" by making the main character struggle with his own emotions, and controlling his powerful abilities. Along the way, you'll meet characters that contributes his journey towards self-discovery! **Mob Psycho 100** is anime that will surely be worth a watch and is always a great reccomendation for those who needs it! Thank you so much for reading<3!
 
 
 <img width="498" height="268" alt="tenor" src="https://github.com/user-attachments/assets/048a2d39-9611-46ad-8411-eb01f89a8545" />
