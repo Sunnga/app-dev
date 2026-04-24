@@ -62,7 +62,7 @@ The story follows a student named Shigeo Kageyama; he is an average student with
 Well as someone who struggles with a lot of things in life, Mob Psycho 100 portrays various perspectives, and sometimes takes on mundane things through the lenses of the supernatural. It tackles hard on what is considered as “special”, reflected by their abilities and motivations. How it feels to be insignificant compared to others and understanding that envy isn’t always the answer. The characters are charming and comedic at certain moments, yet they aren’t one-dimensional. The series understands this and takes advantage of it through powerful writing. While the action scenes are captivating, the most memorable ones are often the quietest and most emotional. 
 
 ### Who Are My Favorite Characters?
-All of them. I don’t think I can pick a favorite. However, for the sake of this, my favorite dynamic must be Reigen Arataka and Shigeo Kageyama. Throughout the course of the story, we get to see how big an impact Reigen had made on Shigeo. How, despite his crazy powers, not everything can be solved through pure supernatural abilities alone. Sometimes, effort must come from within. On the other hand, Shigeo teaches Reigen how to trust in himself. To see how after all he went through, it didn’t matter that he was fraudulent or lived a life less than others, he was still a good person. 
+All of them. I don’t think I can pick a favorite. However, for the sake of this, my favorite dynamic must be *Reigen Arataka* and *Shigeo Kageyama*. Throughout the course of the story, we get to see how big an impact Reigen had made on Shigeo. How, despite his crazy powers, not everything can be solved through pure supernatural abilities alone. Sometimes, effort must come from within. On the other hand, Shigeo teaches Reigen how to trust in himself. To see how after all he went through, it didn’t matter that he was fraudulent or lived a life less than others, he was still a good person. 
 
 ## Conclusion
 ### Watch it🫰 
@@ -70,12 +70,17 @@ All of them. I don’t think I can pick a favorite. However, for the sake of thi
 
 - The story is immaculate. ~~(Source? Trust me bro)~~ 
 - Characters are great and interesting.
-- The main character (Shigeo Kageyama) starts off strong, but struggles to become normal.
+- The main character (Shigeo Kageyama) starts off strong, but struggles to keep his supernatural abilities in check.
 - Both action scenes and emotional scenes are very well-done.
 - The pacing can be slow sometimes, but it pays off in the later part.
 - The story is consistent and builds on pre-existing establishments, rather than becoming out of character.
 - Its relatable!
 - Relatively Short.
+  
 ---
-In conclusion! if this interest you or if this series genuinely aligns with what you like, please make time to watch Mob Psycho 100. It contradicts the typical "Hero's journey towards to becoming strong" by making the main character struggle with his own emotions, and controlling his powerful abilities. Along the way, you'll meet characters that contributes his journey towards self-discovery! 
+**RATING!!:**
 
+⭐⭐⭐⭐⭐/⭐⭐⭐⭐⭐
+
+---
+In conclusion! if this interest you or if this series genuinely aligns with what you like, please make time to watch Mob Psycho 100. It contradicts the typical "Hero's journey towards to becoming strong" by making the main character struggle with his own emotions, and controlling his powerful abilities. Along the way, you'll meet characters that contributes his journey towards self-discovery! **Mob Psycho 100** is anime that will surely be worth a watch!
