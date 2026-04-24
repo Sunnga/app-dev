@@ -89,5 +89,8 @@ In conclusion! if this interest you or if this series genuinely aligns with what
 <img width="498" height="268" alt="tenor" src="https://github.com/user-attachments/assets/048a2d39-9611-46ad-8411-eb01f89a8545" />
 
  #### DEFINITIONS
- Manga : Style of Japanese comic book and graphic novels.
- Anime : Style of Japanese film and television animation.
+ Manga 
+ : Style of Japanese comic book and graphic novels.
+ 
+ Anime 
+ : Style of Japanese film and television animation.
